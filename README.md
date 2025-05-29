@@ -1,1 +1,1 @@
-# Top-10-Strongest-Anime-Character
+# Top-10-Anime Ranked
